@@ -1,0 +1,5 @@
+![Screenshot (16)](https://github.com/Guram11/WorldWise/assets/121447764/cf06130a-0c34-47c9-8af5-2ddbc65e1be7)
+![Screenshot (17)](https://github.com/Guram11/WorldWise/assets/121447764/6eb0fa9b-d652-4785-9eec-531de5ff2da3)
+![Screenshot (15)](https://github.com/Guram11/WorldWise/assets/121447764/9d949f2c-60c7-42ad-86f0-7de1b43f1652)
+![Screenshot (13)](https://github.com/Guram11/WorldWise/assets/121447764/4f06fd5f-8e61-4ee2-bc87-0eb3a4828800)
+![Screenshot (14)](https://github.com/Guram11/WorldWise/assets/121447764/fb294ec7-874f-45ab-8abb-1b63b608a5b8)
